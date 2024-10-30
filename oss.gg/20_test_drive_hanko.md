@@ -4,4 +4,4 @@ Record yourself (Screenstudio, Loom, Cap.so…) while you visit hanko.io and sta
 
 **Points**: 100 - 500 points
 
-30-Oct-2024:  I done this challenge test drive hanko, i am [shivam kumar singh](https://oss.gg/shivamkumarsingh28) [Link](https://drive.google.com/file/d/1NLbbPOpNyV0NthS98Kp1DlSx6Kt-hCr7/view?usp=sharing)
+30-Oct-2024:  I done this challenge test drive hanko, I am [shivam kumar singh](https://oss.gg/shivamkumarsingh28) [Link](https://drive.google.com/file/d/1NLbbPOpNyV0NthS98Kp1DlSx6Kt-hCr7/view?usp=sharing)
